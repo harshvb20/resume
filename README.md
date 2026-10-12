@@ -1,4 +1,4 @@
-# Manikandan Madhu — Résumé
+# Harsh Vardhan Baudh — Résumé
 
 Permanent résumé link: **https://harshvb20.github.io/resume/**
 
